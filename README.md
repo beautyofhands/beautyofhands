@@ -6,6 +6,6 @@
 - 📫 How to reach me https://rajantiwarimehndiart.com/
 
 <!---
-beautyofhands/beautyofhands is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+Rajan Tiwari is a celebrated wedding mehndi artist renowned for his exquisite bridal and stylish designs. Specializing in Arabic and khafif patterns, his intricate artistry enhances every bride's wedding look, ensuring they shine on their special day.
+
 --->
